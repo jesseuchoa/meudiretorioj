@@ -1,0 +1,2 @@
+# meudiretorioj
+aprendizado
